@@ -1,0 +1,2 @@
+# Gurpreet Singh
+## Magic Notes
